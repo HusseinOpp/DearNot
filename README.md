@@ -1,1 +1,1 @@
-Fow Windows 
+For Windows 
